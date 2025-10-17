@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a student
+Hi,I'm Bhamesh Megalamani
 
 
 ## 🌐 Socials:
